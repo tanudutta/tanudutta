@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+
+#### Welcome to my GitHub Profile !!!!
+
+###### I am current doing Integrated PhD at TIFR Mumbai.
